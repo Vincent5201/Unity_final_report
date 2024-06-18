@@ -1,3 +1,5 @@
+https://drive.google.com/drive/folders/1mG_9f_DNfqaNmkAk5CUERSXmLf14UPun?usp=drive_link
+
 一、操作說明 
 
     打開build資料夾點選escape.exe即可開始遊戲
