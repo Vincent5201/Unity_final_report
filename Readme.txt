@@ -1,4 +1,4 @@
-https://drive.google.com/drive/folders/1mG_9f_DNfqaNmkAk5CUERSXmLf14UPun?usp=drive_link
+遊戲下載: https://drive.google.com/drive/folders/1mG_9f_DNfqaNmkAk5CUERSXmLf14UPun?usp=drive_link
 
 一、操作說明 
 
